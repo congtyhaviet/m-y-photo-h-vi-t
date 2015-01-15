@@ -4,7 +4,7 @@
 
 Nếu bạn muốn tìm kiếm một cỗ máy kết hợp tất cả trong một, thì rất có thể nó còn có thêm cả chức năng e-mail nữa. Thực ra, chức năng này có khi còn hữu dụng hơn tính năng fax thông thường. Điều đó có nghĩa cỗ máy này có thể gửi e-mail từ PC và gắn kèm tài liệu được quét trên thiết bị. Một số dạng thiết bị này còn có thể e-mail tài liệu quét một cách trực tiếp.
 
-[B]>> [URL='http://www.haviet.com.vn/muc-in-chinh-hang-hp-1226190.html']mực in chính hãng[/URL] mua ở đâu tốt ?[/B]
+[B]>> [link=http://www.haviet.com.vn/muc-in-chinh-hang-hp-1226190.html]mực in chính hãng[/link] mua ở đâu tốt ?[/B]
 
 Nếu tìm kiếm một chiếc máy tin tất cả trong một thì chiếc máy đó cần phải có tính năng nạp giấy tự động để bạn có thể fax, copy, quét tài liệu, hoặc e-mail nhiều bản tài liệu cùng lúc mà không tốn nhiều thời gian. Tính năng nạp giấy tự động cũng giúp máy in có thể xử lý các kích cỡ nhỏ hơn mức thông thường.
 
